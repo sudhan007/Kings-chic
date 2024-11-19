@@ -1,0 +1,2 @@
+# Kings-chic
+privacy policy
